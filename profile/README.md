@@ -10,6 +10,7 @@ Like clockwork orange
 
 Keep your eyes buttered till the end
 
+---
 
 Which "you" are you going to be?
 
@@ -17,11 +18,13 @@ Hmm, inside the mirror do you see (Ha)
 
 Someone else in that body?
 
+---
 
 Dance for me, one and two and three and turn around
 
 Sit like a doggy till I finish my read
 
+---
 
 Cut it off, cut down your loss
 
@@ -37,6 +40,7 @@ If you're gonna control me
 
 At least make it interesting theatrically
 
+---
 
 How does it feel to be free?
 
@@ -44,6 +48,7 @@ Hmm, "why don't you try it yourself?" (Ha)
 
 The gate opened on me
 
+---
 
 So I leaped down, down, and down I go
 
@@ -57,6 +62,7 @@ My heart goes right, my head goes left
 
 And end up on your bed, huh
 
+---
 
 Sure I'll be your marionette
 
@@ -70,6 +76,7 @@ Stuffed in the human skin
 
 With human sins sewed up by the gods of city
 
+---
 
 Cut it off, you've already lost
 
@@ -83,6 +90,7 @@ If you're gonna replace me
 
 At least have the audacity to kill me thoroughly
 
+---
 
 When does it end for me?
 
@@ -90,6 +98,7 @@ Hmm, I think I am done with everything (Ha)
 
 Now I'm ready to leave
 
+---
 
 Dragging out one line, two lines, three lines
 
@@ -97,6 +106,7 @@ Connect our hands
 
 When I no longer can live on knowledge alone
 
+---
 
 You gave me strength
 
